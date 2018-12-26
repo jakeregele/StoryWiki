@@ -1,3 +1,0 @@
-## STORY mfg. Wiki
-
-
